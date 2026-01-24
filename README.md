@@ -10,3 +10,4 @@ Updated! yes the key should work
 
 
 Do not abuse or use in production. Dev testing only. Remember i have limited money and i will not fund this again.
+Newer model was very limited / not availible. So please do not use alot.
